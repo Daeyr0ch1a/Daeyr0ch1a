@@ -1,4 +1,1 @@
-Ya ebany loh. 
-Account na GitHub sdelal potomu chto mne skazali.
-Nu, radi spravidlivosti, ya im osobo ne polizujs.
-
+I know I don't deserve your forgiveness
